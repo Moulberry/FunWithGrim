@@ -1,0 +1,8 @@
+# THIS IS A CHEAT
+# THIS IS A CHEAT
+# THIS IS A CHEAT
+# THIS IS A CHEAT
+# THIS IS A CHEAT
+# THIS IS A CHEAT
+
+Do not run this on a public server.
